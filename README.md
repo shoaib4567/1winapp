@@ -1,1 +1,1 @@
-https://1win-app.org/
+(https://1win.com.pk/)
